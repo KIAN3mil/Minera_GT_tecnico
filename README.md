@@ -1,0 +1,1 @@
+# Minera_GT_tecnico
